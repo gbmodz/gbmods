@@ -1,4 +1,4 @@
-GBMODS Adalah singkatan dari (GONDRONG MODIFIKASI) bisa di bilang suatu komunitas (GONDRONG BOYS) penggemar sepak bola di daerah Tangerang,suatu anak yang berkeinginan belajar (boobs) membuat blogger/website hasil modifikasi dari berbagai macam sumber.
+GBMODS Adalah singkatan dari (GONDRONG MODIFIKASI) bisa di bilang suatu komunitas (GONDRONG BOYS) penggemar sepak bola di daerah Tangerang,suatu anak yang berkeinginan belajar (noobs) membuat blogger/website hasil modifikasi dari berbagai macam sumber.
 
 modded APK adalah versi modifikasi dari aplikasi Android resmi seperti Instagram, WhatsApp, PicsArt, dll.
 Aplikasi Android dikemas ke dalam file yang memiliki ekstensi bernama .APK. Jadi, ini disebut file APK, yang telah mendapatkan semua elemen aplikasi dan dapat diinstal pada ponsel Android.
